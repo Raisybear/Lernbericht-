@@ -7,7 +7,7 @@ Der Schlungg, ein Schwung, den ich im Schwingklub gelernt habe.
 
 ## Was habe ich gelernt?
 
-Einen Neuen, effektiven Schwung
+Einen Neuen, effektiven Schwung. 
 
 ## Beschreibung
 
